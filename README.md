@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EnHaMaDa
+- 👀 I’m interested in Programing and website builder
+- 🌱 I’m currently learning c# and c++ and Python and Javascript and java
+- 📫 My Instagram its 7m2da.7z
+- ⚡ Fun fact: Programing
